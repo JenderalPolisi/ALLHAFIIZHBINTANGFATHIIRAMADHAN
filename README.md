@@ -9,3 +9,4 @@ Kalau mau beli yang aman dan memikirkan ATAU MENCARI KELUARGA YANG JAUH SEKALIPU
 Wajib makan minum tangan kanan.
 Yang ada di indomaret itu perjalanan HALAL.MAU JUAL APAPUN TETAP HALAL.PAPA EFFENDI HARAHAP SUDAH MENGETAHUI KUNCINYA,
 Kalau mau sembuh beli di Indomaret pasti nyaman enak dibadan,yang dijual pasti halal pasti dibersihkan sudah ada yang membersihkan asal belinya di indomaret.cita cita apapun pasti tercapai tapi yang baik baik ya.
+Minuman paling-paling sangat special DI INDOMARET ITU ADALAH GOLDA COFFE,SANGAT SANGAT SPECIAL.
