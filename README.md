@@ -4,3 +4,4 @@ ALAMAT MRANGGEN PANDEYAN GROGOL SUKOHARJO JAWATENGAH INDONESIA,
 Kalau pakai gelang dan kalung dari kabel tembaga tapi yang bungkuse kabel berwarna merah ya.
 Makan minum apapun kebal dari racun dan bakteri.
 itu kuncinya papa EFFENDI HARAHAP,PAPA MINTA MAAF SEKIAN TAHUN MENGHILANG MENCARI ITU BUAT BEKAL ANAKKU DAN BUNDA YULIDA FATMAWATI.ITU KUNCI TERAKHIR PAPA EFFENDI HARAHAP.ROKOKNYA KALAU ANAK PAPA MAU NGEROKOK ROKONYA W1N BOLD,MINUMNYA GOLDA COFFE 
+Kalau pipis disentuh telunjuk kiri,kalau mau merokok pakai korek api dari bahan pematik korek api plastik jangan besuk,mematik korek api pakai telunjuk kanan,kalau anak papa dan bunda mau merokok,makan minum pakai tangan kanan.
