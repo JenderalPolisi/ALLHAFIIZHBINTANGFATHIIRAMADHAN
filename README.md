@@ -7,3 +7,5 @@ itu kuncinya papa EFFENDI HARAHAP,PAPA MINTA MAAF SEKIAN TAHUN MENGHILANG MENCAR
 Kalau pipis disentuh telunjuk kiri,kalau mau merokok pakai korek api dari bahan pematik korek api plastik jangan besi,mematik korek api pakai telunjuk kanan,kalau anak papa dan bunda mau merokok,makan minum pakai tangan kanan.
 Kalau mau beli yang aman dan memikirkan ATAU MENCARI KELUARGA YANG JAUH SEKALIPUN BELI DI INDOMARET PASTI ketemu,mau mencari jawaban apapun belinya di Indomaret pasti terjawab.wajib itu pakai gelang kalung tembaga bungkuse kabel warna merah dan beli makan atau minum di Indomaret,pertanyaan apapun pasti terjawab,mau pandai pintar kaya mau apapun beli di Indomaret sudah papa Effendi Harahap ketahui kunci Indomaret itu petunjuk pasti. .
 Wajib makan minum tangan kanan.
+Yang ada di indomaret itu perjalanan HALAL.MAU JUAL APAPUN TETAP HALAL.PAPA EFFENDI HARAHAP SUDAH MENGETAHUI KUNCINYA,
+Kalau mau sembuh beli di Indomaret pasti nyaman enak dibadan,yang dijual pasti halal pasti dibersihkan sudah ada yang membersihkan asal belinya di indomaret.cita cita apapun pasti tercapai tapi yang baik baik ya.
