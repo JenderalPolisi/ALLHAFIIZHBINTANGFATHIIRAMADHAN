@@ -12,4 +12,4 @@ Kalau mau sembuh beli di Indomaret pasti nyaman enak dibadan,yang dijual pasti h
 Minuman paling-paling sangat special DI INDOMARET ITU ADALAH GOLDA COFFE,SANGAT SANGAT SPECIAL.
 Walaupun apapun beli di Indomaret itu memang special.
 Kan pedagang lain beli bahan baku di Indomaret kan juga bisa kan.Kalau bunda Yulida fatmawati tetap jualan batik (julidabatik)gpp ,asal beli minum atau makan di indomaret pasti bunda Yulida Fatmawati senang.
-Apalagi bahan bakunya dari Indomaret yang ada kebahagiaan.
+Apalagi bahan bakunya dari Indomaret yang ada pasti kebahagiaan.
